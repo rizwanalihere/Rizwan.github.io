@@ -1,1 +1,6 @@
-# Rizwan.github.io
+# Environmental Scientist
+
+### Education
+Environmental Science, MSc
+
+###
