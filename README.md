@@ -27,6 +27,7 @@ I am currently looking for fully funded **PhD positions** in Environmental Scien
 - Key Courses: Environmental Analytical Advances, Ecotoxicology and Environmental Risk Assessment, Emerging Contaminents: Environmental Behaviour and Human Exposure, Environmental Engineering, Environmental Management, Toxicological Chemistry, and Microbial Ecology  
 - Lab: The key laboratory of pollution Processes and Environmental Criteria, Ministry of Education, China  
 - Research: Phytoremediation, Bioremediation, Aquatic plants, Ornamental plants, Meta-analysis
+/MS classes.jpg
 
 ### 🌱 BSc Environmental Science  
 **Federal Urdu University of Arts, Science & Technology**, Karachi (2018 – 2021)  
